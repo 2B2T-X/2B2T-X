@@ -12,7 +12,7 @@ Always open to building something new and large. Hit me up.
 - I have a dog 🐶
 - Minecraft is my game 🎮
 - Coffee over everything ☕
-- Attack on Titan is peak anime 🗡️
+- Dragon Ball is peak anime 🗡️
 
 **Hobbies:** gym · building things · anime · competitive coding · music
 
